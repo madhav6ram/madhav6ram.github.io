@@ -1,5 +1,4 @@
 # Madhav Ram
-### madhavr.com
 ### Contact me via Email: madhav6ram@gmail.com
 
 ## Education
